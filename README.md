@@ -1,1 +1,5 @@
 # proj-1
+Zorro do Asfalto: A Voz da Favela sobre RodasO retrato realista da rotina e dos riscos enfrentados pelos entregadores de aplicativoO "Zorro do Asfalto" é uma composição marcante que aborda a dura realidade dos motoboys e entregadores nos grandes centros urbanos. A música utiliza a metáfora do herói mascarado para valorizar esses trabalhadores que correm contra o tempo para garantir o pão de cada dia.
+📌 Tópicos PrincipaisA Linha de Frente: A rotina exaustiva sob sol e chuva.O Perigo Invisível: O risco constante de acidentes e a pressão por tempo.Invisibilidade Social: Como a sociedade consome o serviço, mas ignora o trabalhador.Heróis Modernos: A comparação dos motoboys com o Zorro, combatendo as dificuldades do asfalto.
+📝 Análise da ObraA letra traz uma crítica social profunda e necessária sobre a precarização do trabalho na era digital. Enquanto o cliente espera o conforto de sua casa, o "Zorro" arrisca a própria vida costurando o trânsito caótico.
+🎧 Ouça a MúsicaVocê pode escutar a faixa completa através deste Link para a Música.
