@@ -1,5 +1,8 @@
-# proj-1
-Zorro do Asfalto: A Voz da Favela sobre RodasO retrato realista da rotina e dos riscos enfrentados pelos entregadores de aplicativoO "Zorro do Asfalto" é uma composição marcante que aborda a dura realidade dos motoboys e entregadores nos grandes centros urbanos. A música utiliza a metáfora do herói mascarado para valorizar esses trabalhadores que correm contra o tempo para garantir o pão de cada dia.
-📌 Tópicos PrincipaisA Linha de Frente: A rotina exaustiva sob sol e chuva.O Perigo Invisível: O risco constante de acidentes e a pressão por tempo.Invisibilidade Social: Como a sociedade consome o serviço, mas ignora o trabalhador.Heróis Modernos: A comparação dos motoboys com o Zorro, combatendo as dificuldades do asfalto.
-📝 Análise da ObraA letra traz uma crítica social profunda e necessária sobre a precarização do trabalho na era digital. Enquanto o cliente espera o conforto de sua casa, o "Zorro" arrisca a própria vida costurando o trânsito caótico.
-🎧 Ouça a MúsicaVocê pode escutar a faixa completa através deste Link para a Música.
+# sophia#
+##hungria - provavelmente##
+[hungria - a musica que muitos gostam](https://youtu.be/OHgpwHgMUhY?si=uSHOk46quXJnR7IR)
+_É uma musica que me inspira_
+**Eu gosto dela pela parte" ai parceiro hoje esse grave vai tremer minha saveiro**
+-Foi escrita pelo cantor que se chama hungria-
+![Uma saveiro saindo faísca](<img width="498" height="280" alt="17828175860396699886749035391552" src="https://github.com/user-attachments/assets/6ae41c91-c288-4c5b-ac9d-c4b65b44447b" />)
+![Um gato pedindo comida](https://tenor.com/pt-BR/view/cat-funny-bowl-hungry-gif-5337018160645280311)
